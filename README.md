@@ -8,4 +8,4 @@
 
 💞️ I’m looking to collaborate on Deep Learning and AutoML Technologies
 
-📫 How to reach me : Just shoot an email on piyushsaraf00@gmail.com
+📫 How to reach me : Just shoot an email on piyushsaraf00@gmail.com or connect on linkedIn - https://linkedin.com/in/piyushsaraf
